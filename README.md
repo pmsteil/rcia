@@ -36,6 +36,7 @@ This varies by Parish.  At St. John Paul II University Catholic Parish in Denton
 ### How do I get started?
 Visit the [St. John Paul II University Catholic Parish website](https://jp2denton.org/rcia) and fill out the RCIA Inquiry Form.  You will be contacted by the RCIA Coordinator to schedule an interview.  The interview is an opportunity for you to ask questions and for us to get to know you.  It is also an opportunity for us to learn about your faith journey and to ensure that the RCIA process is right for you.
 
+## Calendar
+### 2023 - 2024
 
-
-
+[JP2-RCIA-2023-2024-Calendar-Revision-3.pdf](JP2-RCIA-2023-2024-Calendar-Revision-3.pdf)
