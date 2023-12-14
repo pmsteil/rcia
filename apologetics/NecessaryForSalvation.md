@@ -1,168 +1,164 @@
 # What does the BIBLE actually teach is required for Salvation?
 
-(DRAFT - need to check all Scripture references for accuracy)
-
-
 ## Faith
 
-**John 3:16** - "For God so loved the world that he gave his only Son, that whoever believes in him should not perish but have eternal life."
+**John 3:16** - "For God so loved the world that he gave his only Son, so that everyone who believes in him might not perish but might have eternal life."
 
-**Ephesians 2:8-9** - "For by grace you have been saved through faith; and this is not your own doing, it is the gift of God— not because of works, lest any man should boast."
+**Ephesians 2:8-9** - "For by grace you have been saved through faith, and this is not from you; it is the gift of God; it is not from works, so no one may boast."
 
-**Romans 10:9** - "Because, if you confess with your lips that Jesus is Lord and believe in your heart that God raised him from the dead, you will be saved."
+**Romans 10:9** - "For, if you confess with your mouth that Jesus is Lord and believe in your heart that God raised him from the dead, you will be saved."
 
-**Galatians 2:16** - "Who know that a man is not justified by works of the law but through faith in Jesus Christ, even we have believed in Christ Jesus, in order to be justified by faith in Christ, and not by works of the law, because by works of the law shall no one be justified."
+**Galatians 2:16** - "Yet we know that a person is not justified by works of the law but through faith in Jesus Christ, so we also have believed in Christ Jesus in order to be justified by faith in Christ and not by works of the law, because by works of the law no one will be justified."
 
-**Hebrews 11:1** - "Now faith is the assurance of things hoped for, the conviction of things not seen."
+**Hebrews 11:1** - "Faith is the realization of what is hoped for and evidence of things not seen."
 
-**Mark 11:22** - "And Jesus answered them, 'Have faith in God.'"
+**Mark 11:22** - "Jesus said to them in reply, 'Have faith in God.'"
 
-**Romans 10:17** - "So faith comes from what is heard, and what is heard comes by the preaching of Christ."
+**Romans 10:17** - "So faith comes from what is heard, and what is heard comes through the word of Christ."
 
-**James 2:24** - "You see that a man is justified by works and not by faith alone."
+**James 2:24** - "See how a person is justified by works and not by faith alone."
 
 ## Repentance
 
-**Acts 2:38** - "And Peter said to them, 'Repent, and be baptized every one of you in the name of Jesus Christ for the forgiveness of your sins; and you shall receive the gift of the Holy Spirit.'"
+**Acts 2:38** - "Peter [said] to them, 'Repent and be baptized, every one of you, in the name of Jesus Christ for the forgiveness of your sins; and you will receive the gift of the Holy Spirit.'"
 
-**Acts 3:19** - "Repent therefore, and turn again, that your sins may be blotted out, that times of refreshing may come from the presence of the Lord."
+**Acts 3:19** - "Repent, therefore, and be converted, that your sins may be wiped away."
 
-**2 Peter 3:9** - "The Lord is not slow about his promise as some count slowness, but is forbearing toward you, not wishing that any should perish, but that all should reach repentance."
+**2 Peter 3:9** - "The Lord does not delay his promise, as some regard 'delay,' but he is patient with you, not wishing that any should perish but that all should come to repentance."
 
-**Luke 13:3** - "No, I tell you; but unless you repent you will all likewise perish."
+**Luke 13:3** - "No, I tell you, but unless you repent, you will all perish as they did!"
 
-**Revelation 2:5** - "Remember then from what you have fallen, repent and do the works you did at first. If not, I will come to you and remove your lampstand from its place, unless you repent."
+**Revelation 2:5** - "Remember then how you accepted and heard; keep it, and repent. If you are not watchful, I will come like a thief, and you will never know at what hour I will come upon you."
 
-**Matthew 4:17** - "From that time Jesus began to preach, saying, 'Repent, for the kingdom of heaven is at hand.'"
+**Matthew 4:17** - "From that time on, Jesus began to preach and say, 'Repent, for the kingdom of heaven is at hand.'"
 
-**Mark 1:15** - "The time is fulfilled, and the kingdom of God is at hand; repent and believe in the gospel."
+**Mark 1:15** - "This is the time of fulfillment. The kingdom of God is at hand. Repent, and believe in the gospel."
 
-**2 Corinthians 7:10** - "For godly grief produces a repentance that leads to salvation and brings no regret, but worldly grief produces death."
+**2 Corinthians 7:10** - "For godly sorrow produces a salutary repentance without regret, but worldly sorrow produces death."
 
 ## Forgiveness
 
-**1 John 1:9** - "If we confess our sins, he is faithful and just, and will forgive our sins and cleanse us from all unrighteousness."
+**1 John 1:9** - "If we acknowledge our sins, he is faithful and just and will forgive our sins and cleanse us from every wrongdoing."
 
-**Luke 6:37** - "Judge not, and you will not be judged; condemn not, and you will not be condemned; forgive, and you will be forgiven."
+**Luke 6:37** - "Stop judging and you will not be judged. Stop condemning and you will not be condemned. Forgive and you will be forgiven."
 
-**Matthew 6:14-15** - "For if you forgive men their trespasses, your heavenly Father also will forgive you; but if you do not forgive men their trespasses, neither will your Father forgive your trespasses."
+**Matthew 6:14-15** - "If you forgive others their transgressions, your heavenly Father will forgive you. But if you do not forgive others, neither will your Father forgive your transgressions."
 
-**Colossians 3:13** - "Bearing with one another and, if one has a complaint against another, forgiving each other; as the Lord has forgiven you, so you also must forgive."
+**Colossians 3:13** - "Bear with one another; forgive whatever grievances you have against one another. Forgive as the Lord has forgiven you."
 
-**Matthew 18:21-22** - "Then Peter came up and said to him, “Lord, how often shall my brother sin against me, and I forgive him? As many as seven times?” Jesus said to him, “I do not say to you seven times, but seventy times seven.”"
+**Matthew 18:21-22** - "Then Peter approaching asked him, 'Lord, if my brother sins against me, how often must I forgive him? As many as seven times?' Jesus answered, 'I say to you, not seven times but seventy-seven times.'"
 
-**Ephesians 4:32** - "Be kind to one another, tenderhearted, forgiving one another, as God in Christ forgave you."
+**Ephesians 4:32** - "Be kind to one another, compassionate, forgiving one another as God has forgiven you in Christ."
 
 ## Baptism
 
-**Matthew 28:19** - "Go therefore and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit."
+**Matthew 28:19** - "Go, therefore, and make disciples of all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Spirit."
 
-**Mark 16:16** - “He who believes and is baptized will be saved; but he who does not believe will be condemned.”
+**Mark 16:16** - "Whoever believes and is baptized will be saved; whoever does not believe will be condemned."
 
-**Acts 2:41** - "So those who received his word were baptized, and there were added that day about three thousand souls."
+**Acts 2:41** - "Those who accepted his message were baptized, and about three thousand persons were added that day."
 
-**Romans 6:3-4** - "Do you not know that all of us who have been baptized into Christ Jesus were baptized into his death? We were buried therefore with him by baptism into death, so that as Christ was raised from the dead by the glory of the Father, we too might walk in newness of life."
+**Romans 6:3-4** - "Or are you unaware that we who were baptized into Christ Jesus were baptized into his death? We were indeed buried with him through baptism into death, so that, just as Christ was raised from the dead by the glory of the Father, we too might live in newness of life."
 
-**1 Peter 3:21** - "Baptism, which corresponds to this, now saves you, not as a removal of dirt from the body but as an appeal to God for a clear conscience, through the resurrection of Jesus Christ."
+**1 Peter 3:21** - "This prefigured baptism, which saves you now. It is not a removal of dirt from the body but an appeal to God for a clear conscience, through the resurrection of Jesus Christ."
 
-**Galatians 3:27** - "For as many of you as were baptized into Christ have put on Christ."
+**Galatians 3:27** - "For all of you who were baptized into Christ have clothed yourselves with Christ."
 
 ## Eucharist
 
-**John 6:53-54** - "So Jesus said to them, “Truly, truly, I say to you, unless you eat the flesh of the Son of man and drink his blood, you have no life in you; he who eats my flesh and drinks my blood has eternal life, and I will raise him up at the last day."
+**John 6:53-54** - "Jesus said to them, 'Amen, amen, I say to you, unless you eat the flesh of the Son of Man and drink his blood, you do not have life within you. Whoever eats my flesh and drinks my blood has eternal life, and I will raise him on the last day.'"
 
-**Luke 22:19** - "And he took bread, and when he had given thanks he broke it and gave it to them, saying, “This is my body which is given for you. Do this in remembrance of me.”"
+**Luke 22:19** - "Then he took the bread, said the blessing, broke it, and gave it to them, saying, 'This is my body, which will be given for you; do this in memory of me.'"
 
-**1 Corinthians 10:16** - "The cup of blessing which we bless, is it not a participation in the blood of Christ? The bread which we break, is it not a participation in the body of Christ?"
+**1 Corinthians 10:16** - "The cup of blessing that we bless, is it not a participation in the blood of Christ? The bread that we break, is it not a participation in the body of Christ?"
 
-**1 Corinthians 11:23-26** - "For I received from the Lord what I also delivered to you, that the Lord Jesus on the night when he was betrayed took bread, and when he had given thanks, he broke it, and said, 'This is my body which is for you. Do this in remembrance of me.'"
+**1 Corinthians 11:23-26** - "For I received from the Lord what I also handed on to you, that the Lord Jesus, on the night he was handed over, took bread, and, after he had given thanks, broke it and said, 'This is my body that is for you. Do this in remembrance of me.' In the same way also the cup, after supper, saying, 'This cup is the new covenant in my blood. Do this, as often as you drink it, in remembrance of me.' For as often as you eat this bread and drink the cup, you proclaim the death of the Lord until he comes."
 
-**Matthew 26:26-28** - "Now as they were eating, Jesus took bread, and blessed, and broke it, and gave it to the disciples and said, “Take, eat; this is my body.” And he took a cup, and when he had given thanks he gave it to them, saying, “Drink of it, all of you; for this is my blood of the covenant, which is poured out for many for the forgiveness of sins."
+**Matthew 26:26-28** - "While they were eating, Jesus took bread, said the blessing, broke it, and giving it to his disciples said, 'Take and eat; this is my body.' Then he took a cup, gave thanks, and gave it to them, saying, 'Drink from it, all of you, for this is my blood of the covenant, which will be shed on behalf of many for the forgiveness of sins.'"
 
 ## Being a Disciple
 
-**Luke 9:23** - "And he said to all, “If any man would come after me, let him deny himself and take up his cross daily and follow me."
+**Luke 9:23** - "Then he said to all, 'If anyone wishes to come after
 
-**John 13:34-35** - “A new commandment I give to you, that you love one another; even as I have loved you, that you also love one another. By this all men will know that you are my disciples, if you have love for one another.”
+ me, he must deny himself and take up his cross daily and follow me.'"
 
-**John 8:31** - "Jesus then said to the Jews who had believed in him, “If you continue in my word, you are truly my disciples."
+**John 13:34-35** - "'I give you a new commandment: love one another. As I have loved you, so you also should love one another. This is how all will know that you are my disciples, if you have love for one another.'"
 
-**Matthew 28:19-20** - "Go therefore and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe all that I have commanded you; and lo, I am with you always, to the close of the age.”"
+**John 8:31** - "Jesus then said to those Jews who believed in him, 'If you remain in my word, you will truly be my disciples.'"
 
-**Matthew 10:38** - "And he who does not take his cross and follow me is not worthy of me."
+**Matthew 28:19-20** - "Go, therefore, and make disciples of all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Spirit, teaching them to observe all that I have commanded you. And behold, I am with you always, until the end of the age.'"
 
-**Luke 14:27** - "Whoever does not bear his own cross and come after me, cannot be my disciple."
+**Matthew 10:38** - "And whoever does not take up his cross and follow after me is not worthy of me."
 
-**Matthew 16:24** - "Then Jesus told his disciples, 'If any man would come after me, let him deny himself and take up his cross and follow me.'"
+**Luke 14:27** - "Whoever does not carry his own cross and come after me cannot be my disciple."
 
-**John 15:8** - "By this my Father is glorified, that you bear much fruit, and so prove to be my disciples."
+**Matthew 16:24** - "Then Jesus said to his disciples, 'Whoever wishes to come after me must deny himself, take up his cross, and follow me.'"
+
+**John 15:8** - "By this is my Father glorified, that you bear much fruit and become my disciples."
 
 ## Good Works
 
-**James 2:14-17** - "What does it profit, my brethren, if a man says he has faith but has not works? Can his faith save him? If a brother or sister is ill-clad and in lack of daily food, and one of you says to them, “Go in peace, be warmed and filled,” without giving them the things needed for the body, what does it profit? So faith by itself, if it has no works, is dead."
+**James 2:14-17** - "What good is it, my brothers, if someone says he has faith but does not have works? Can that faith save him? If a brother or sister has nothing to wear and has no food for the day, and one of you says to them, 'Go in peace, keep warm, and eat well,' but you do not give them the necessities of the body, what good is it? So also faith of itself, if it does not have works, is dead."
 
-**1 Peter 2:12** - "Maintain good conduct among the Gentiles, so that in case they speak against you as wrongdoers, they may see your good deeds and glorify God on the day of visitation."
+**1 Peter 2:12** - "Be subject to every human institution for the Lord’s sake, whether it be to the king as supreme or to governors as sent by him for the punishment of evildoers and the approval of those who do good."
 
-**Matthew 5:16** - "Let your light so shine before men, that they may see your good works and give glory to your Father who is in heaven."
+**Matthew 5:16** - "Just so, your light must shine before others, that they may see your good deeds and glorify your heavenly Father."
 
-**Titus 3:14** - "And let our people learn to apply themselves to good deeds, so as to help cases of urgent need, and not to be unfruitful."
+**Titus 3:14** - "But let our people, too, learn to devote themselves to good works to supply urgent needs, so that they may not be unproductive."
 
-**Colossians 1:10** - "To lead a life worthy of the Lord, fully pleasing to him, bearing fruit in every good work and increasing in the knowledge of God."
+**Colossians 1:10** - "So as to walk in a manner worthy of the Lord, fully pleasing to him: bearing fruit in every good work and growing in the knowledge of God."
 
-**Ephesians 2:10** - "For we are his workmanship, created in Christ Jesus for good works, which God prepared beforehand, that we should walk in them."
+**Ephesians 2:10** - "For we are his handiwork, created in Christ Jesus for the good works that God has prepared in advance, that we should live in them."
 
-**James 2:17** - "So faith by itself, if it has no works, is dead."
+**James 2:17** - "So also faith of itself, if it does not have works, is dead."
 
-**Matthew 25:35-36** - "For I was hungry and you gave me food, I was thirsty and you gave me drink, I was a stranger and you welcomed me, I was naked and you clothed me, I was sick and you visited me, I was in prison and you came to me."
+**Matthew 25:35-36** - "For I was hungry and you gave me food, I was thirsty and you gave me drink, a stranger and you welcomed me, naked and you clothed me, ill and you cared for me, in prison and you visited me.'"
 
-**Galatians 6:2** - “Bear one another’s burdens, and so fulfill the law of Christ."
+**Galatians 6:2** - "Bear one another’s burdens, and so you will fulfill the law of Christ."
 
-**1 Timothy 6:18** - "They are to do good, to be rich in good deeds, liberal and generous."
+**1 Timothy 6:18** - "Tell them to do good, to be rich in good works, to be generous, ready to share."
 
-**Colossians 3:23-24** - "Whatever your task, work heartily, as serving the Lord and not men, knowing that from the Lord you will receive the inheritance as your reward; you are serving the Lord Christ."
+**Colossians 3:23-24** - "Whatever you do, do from the heart, as for the Lord and not for others, knowing that you will receive from the Lord the due payment of the inheritance; be slaves of the Lord Christ."
 
-**Titus 2:14** - "Who gave himself for us to redeem us from all iniquity and to purify for himself a people of his own who are zealous for good deeds."
-
-
+**Titus 2:14** - "Who gave himself for us to deliver us from all lawlessness and to cleanse for himself a people as his own, eager to do what is good."
 
 ## The Church
-**Matthew 16:18** - "And I tell you, you are Peter, and on this rock I will build my church, and the powers of death shall not prevail against it."
 
-**Ephesians 1:22-23** - "And he has put all things under his feet and has made him the head over all things for the church, which is his body, the fullness of him who fills all in all."
+**Matthew 16:18** - "And so I say to you, you are Peter, and upon this rock I will build my church, and the gates of the netherworld shall not prevail against it."
 
-**Acts 2:47** - "praising God and having favor with all the people. And the Lord added to their number day by day those who were being saved."
+**Ephesians 1:22-23** - "And he put all things beneath his feet and gave him as head over all things to the church, which is his body, the fullness of the one who fills all things in every way."
 
-**Hebrews 10:25** - "not neglecting to meet together, as is the habit of some, but encouraging one another, and all the more as you see the Day drawing near."
+**Acts 2:47** - "praising God and enjoying favor with all the people. And every day the Lord added to their number those who were being saved."
 
-**Colossians 1:18** - "And he is the head of the body, the church; he is the beginning, the firstborn from the dead, that in everything he might be preeminent."
+**Hebrews 10:25** - "We should not stay away from our assembly, as is the custom of some, but encourage one another, and this all the more as you see the day drawing near."
 
-**1 Timothy 3:15** - "if I am delayed, you may know how one ought to behave in the household of God, which is the church of the living God, the pillar and bulwark of the truth."
+**Colossians 1:18** - "He is the head of the body, the church. He is the beginning, the firstborn from the dead, that in all things he himself might be preeminent."
 
-
+**1 Timothy 3:15** - "But if I should be delayed, you should know how to behave in the household of God, which is the church of the living God, the pillar and foundation of truth."
 
 ## The New Covenant
-**Hebrews 9:15** - "Therefore he is the mediator of a new covenant, so that those who are called may receive the promised eternal inheritance, since a death has occurred that redeems them from the transgressions committed underthe first covenant."*
 
-**Hebrews 8:6** - "But as it is, Christ has obtained a ministry that is as much more excellent than the old as the covenant he mediates is better, since it is enacted on better promises."
+**Hebrews 9:15** - "For this reason he is mediator of a new covenant: since a death has taken place for deliverance from transgressions under the first covenant, those who are called may receive the promised eternal inheritance."
 
-**Hebrews 10:19-20** - "Therefore, brethren, since we have confidence to enter the sanctuary by the blood of Jesus, by the new and living way which he opened for us through the curtain, that is, through his flesh,"
+**Hebrews 8:6** - "Now he has obtained so much more excellent a ministry as he is mediator of a better covenant, enacted on better promises."
 
-**Jeremiah 31:33** - "But this is the covenant which I will make with the house of Israel after those days, says the Lord: I will put my law within them, and I will write it upon their hearts; and I will be their God, and theyshall be my people."*
+**Hebrews 10:19-20** - "Therefore, brothers, since through the blood of Jesus we have confidence of entrance into the sanctuary by the new and living way he opened for us through the veil, that is, his flesh."
 
-**Romans 8:3-4** - "For God has done what the law, weakened by the flesh, could not do: sending his own Son in the likeness of sinful flesh and for sin, he condemned sin in the flesh, in order that the just requirement of thelaw might be fulfilled in us, who walk not according to the flesh but according to the Spirit."*
+**Jeremiah 31:33** - "But this is the covenant I will make with the house of Israel after those days—oracle of the LORD. I will place my law within them, and write it upon their hearts; I will be their God, and they shall be my people."
 
-
+**Romans 8:3-4** - "For what the law, weakened by the flesh, was powerless to do, this God has done: by sending his own Son in the likeness of sinful flesh and for the sake of sin, he condemned sin in the flesh, so that the righteous decree of the law might be fulfilled in us, who live not according to the flesh but according to the spirit."
 
 ## Jesus and the New Covenant
-**Luke 22:20** - "And likewise the cup after supper, saying, 'This cup that is poured out for you is the new covenant in my blood.'"
 
-**Matthew 26:28** - "for this is my blood of the covenant, which is poured out for many for the forgiveness of sins."
+**Luke 22:20** - "And likewise the cup after they had eaten, saying, 'This cup is the new covenant in my blood, which will be shed for you.'"
 
-**Mark 14:24** - "And he said to them, 'This is my blood of the covenant, which is poured out for many.'"*
+**Matthew 26:28** - "For this is my blood of the covenant, which will be shed on behalf of many for the forgiveness of sins."
 
-**Matthew 5:17** - "Do not think that I have come to abolish the law or the prophets; I have come not to abolishbut to fulfill."
+**Mark 14:24** - "He said to them, 'This is my blood of the covenant, which will be shed for many.'"
 
-**Luke 24:44** - "Then he said to them, 'These are my words that I spoke to you while I was still with you—that everything written about me in the law of Moses, the prophets, and the psalms must be fulfilled.'"
+**Matthew 5:17** - "Do not think that I have come to abolish the law or the prophets. I have come not to abolish but to fulfill."
+
+**Luke 24:44** - "He said to them, 'These are my words that I spoke to you while I was still with you, that everything written about me in the law of Moses and in the prophets and psalms must be fulfilled.'"
 
 
 
@@ -170,6 +166,4 @@
 
 ## Final Notes
 
-All scripture references taken from the RSVSCE translation.
-
-I have not included any of the Old Testament references to the Law, as I believe that the Law was fulfilled in Christ as he said in Matthew 5:17 (RSVSCE): "Think not that I have come to abolish the law and the prophets; I have come not to abolish them but to fulfil them."
+All scripture references taken from the NABRE translation.
